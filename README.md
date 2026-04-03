@@ -1,4 +1,4 @@
-# Fomainspi-Fomainspi
+# Fomainspi
 
 # 👋 Hi, I'm William Foma (Fomainspi)
 
